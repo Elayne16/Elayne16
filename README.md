@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Elayne16
 - 👀 I’m interested in Child Care and teaching
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning Fashion design and Nutrition
 - 💞️ I’m looking to collaborate on ...
 - 📫 To reach me you can Message me through email - 1sarahparry@gmail.com
 
